@@ -1,0 +1,1 @@
+# blooket-hack-bookmarklet-strait-code
